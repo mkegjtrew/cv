@@ -1,1 +1,1 @@
-https://egor123.github.io/cv/cv
+https://mkegjtrew.github.io/cv/cv
